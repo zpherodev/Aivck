@@ -1,5 +1,5 @@
-# Aivck
-Free music by AIVCK
+# Ai.v.ck
+Free music by AI.V.CK
 
 Because you deserve it.
 
